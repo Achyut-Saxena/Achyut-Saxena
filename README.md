@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **aswrks0029@gmail.com**
 
-- 📄 Know about my experiences [here!](shorturl.at/gmER3)
+- 📄 Know about my experiences [here!](https://drive.google.com/file/d/1ztEVWx4rxQwCTN7fUJx7gCIeIDUXkopd/view?usp=sharing)
 
 - ⚡ Fun fact **I love to talk about anything and everything!**
 
